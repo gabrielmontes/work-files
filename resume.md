@@ -1,8 +1,8 @@
 # Gabriel Montes Espinoza  
 Heredia, Costa Rica  
 +506 8382-1088 | gabmecr@gmail.com  
-LinkedIn: https://www.linkedin.com/in/gabrielmontesespinoza
-GitHub: https://github.com/gabrielmontes
+LinkedIn: https://www.linkedin.com/in/gabrielmontesespinoza.  
+Github: https://github.com/gabrielmontes
 
 ---
 
